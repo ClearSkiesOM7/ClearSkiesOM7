@@ -1,0 +1,3 @@
+- Hi. I'm Cameron! 😀
+- Just a dude who does what a dude does. 🤠
+- I'm chill. 
